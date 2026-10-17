@@ -19,3 +19,4 @@ Zlime is a transformed kitty. They transformed by getting [RejuveNaite]({{ site.
 * Very quick healing/recombining.  
 * Since the RejuveNaite was made to recombine and repair the body, if part of Zlime gets separated the liquid cat wants to clump together/recombine with the biggest, closest other part of the liquid cat.  
 * Can’t separate or reshape themselves purposefully since the RejuveNaite wants to turn back to its normal state which is anthropomorphic cat but can be squeezed into small spaces.
+* However if Zlime gets "frozen" while a liquid their body keeps that shape for a while, before slowly turning back to normal.
