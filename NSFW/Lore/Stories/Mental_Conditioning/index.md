@@ -1,6 +1,6 @@
 ## The story
 
-A while after Zlime moved out they started too feel like rent was expensive and wanted to try to keep the costs down, so they started to look into getting a roommate.
+A while after [Zlime]({{ site.baseurl }}\Lore\Fursonas\Zlime) moved out they started too feel like rent was expensive and wanted to try to keep the costs down, so they started to look into getting a roommate.
 
 They didnt really feel like getting some random person and going through that entire process of checking whos good or not. So they started asking around their friends, and Nuru agreed. He's a mostly white dragon with some blue parts, like two horns, his back, tail, and his belly. Zlime and Nuru had played and done sexual stuff in the past and they have both enjoyed it. So it felt like a safe bet for Zlime.
 
