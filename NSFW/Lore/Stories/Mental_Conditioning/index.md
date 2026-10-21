@@ -1,6 +1,8 @@
 ## The story
 
-When Zlime moved out, after a while they started too feel like rent was expensive and wanted to try to keep the costs down, so they started to look into getting a roommate. They didnt really feel like getting some random person and going through that entire process of checking whos good or not. So they started asking around their friends, and Nuru agreed. He's a white and blue [Dragon?], they had played and done some sexual stuff in the past and they have both enjoyed it. So it felt like a safe bet.
+A while after Zlime moved out they started too feel like rent was expensive and wanted to try to keep the costs down, so they started to look into getting a roommate.
+
+They didnt really feel like getting some random person and going through that entire process of checking whos good or not. So they started asking around their friends, and Nuru agreed. He's a mostly white dragon with some blue parts, like two horns, his back, tail, and his belly. Zlime and Nuru had played and done sexual stuff in the past and they have both enjoyed it. So it felt like a safe bet for Zlime.
 
 It started just like normal with roomates. But since they knew eachother and had done it before, it quite quickly turned sexual too. They helped eachother, they fucked, Zlime sucked Nuru etc. But something that Zlime never noticed was the small hints that Nuru made towards that Zlime should prefer to not think. Like calling them a good toy or praising them for just being a brainless hole. Which Zlime does like, but the frequensy of this kind of praise increased over time.
 
